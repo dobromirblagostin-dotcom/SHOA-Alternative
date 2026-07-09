@@ -21,17 +21,18 @@ If you are ready for answers — built on strict physics, mathematical models, a
 👉 [SHOA — Scientific Foundation](https://github.com/dobromirblagostin-dotcom/SHOA)
 
 *SHOA ALTERNATIVE — questions, not answers.*
-## Кто ещё спрашивал?
 
-Этот вопрос не нов. До нас его задавали многие исследователи, чьи работы заслуживают внимания.
+## Who else asked these questions?
 
-Особое место среди них занимает **Андрей Скляров** (1961–2016), основатель проекта «Лаборатория Альтернативной Истории» (ЛАИ). Именно он одним из первых начал системно анализировать технологии обработки камня на древних мегалитах и выдвинул гипотезу палеоконтакта. Его труды остаются фундаментом для всех, кто работает в этой области сегодня.
+This question is not new. Many researchers have asked it before us.
 
-Среди современных исследователей мы отмечаем:
+A special place among them belongs to **Andrey Sklyarov** (1961–2016), founder of the "Laboratory of Alternative History" (LAI). He was one of the first to systematically analyze stone processing technologies on ancient megaliths and put forward the paleocontact hypothesis. His works remain a foundation for everyone working in this field today.
 
-- **Максим Гаубец** — проект «Забытые руины». Полигональная кладка, гигантские блоки, засыпанные этажи.
-- **Илья Герасимов** — канал «Председатель СНТ». Феномен засыпания первых этажей зданий, нестыковки в официальной хронологии.
-- **Олег Павлюченко** — проект AISPIK. Криминалистический метод в альтернативной истории.
-- **Алексей Кунгуров** — теория глобальной катастрофы XIX века.
+Among contemporary researchers, we note:
 
-Мы не утверждаем, что они правы во всём. Но мы благодарны им за вопросы. А если вы хотите получить строгие ответы — добро пожаловать в научный фундамент SHOA.
+- **Maxim Gaubets** — "Forgotten Ruins" project. Polygonal masonry, giant blocks, buried floors.
+- **Ilya Gerasimov** — "SNT Chairman" channel. The phenomenon of buried first floors, inconsistencies in official chronology.
+- **Oleg Pavlyuchenko** — AISPIK project. Forensic method in alternative history.
+- **Alexey Kungurov** — theory of the global catastrophe of the 19th century.
+
+We do not claim that they are right in everything. But we are grateful to them for their questions. And if you are ready for rigorous answers, built on strict physics — welcome to the SHOA scientific foundation.
